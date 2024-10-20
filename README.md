@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Kumarvivek-queue
 - 👀 I’m interested in ... coding 
-- 🌱 I’m currently learning ...Game developer 
+- 🌱 I’m currently learning ...Game development 
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 📫 How to reach me ... vivekk0479@gmail.com
 - 😄 Pronouns: ...He/him
 - ⚡ Fun fact: ...nthng
 
